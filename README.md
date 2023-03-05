@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Nguyen Minh Thong from Vietnam
 🔭I'm current study at Edunation Finland<br>I'm current work as an IT engineer
 
 
